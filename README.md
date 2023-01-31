@@ -1,2 +1,2 @@
 # wihi-marketing
-~this was mistak~
+<sub>on our channal</sub>
